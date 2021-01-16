@@ -1,1 +1,1 @@
-版权所有，翻版必究
+All Rights Reserved
