@@ -1,1 +1,1 @@
-Account Parent
+版权所有，翻版必究
