@@ -1,3 +1,2 @@
-README
-FOO
-BAR
+Please read me carefully.
+
